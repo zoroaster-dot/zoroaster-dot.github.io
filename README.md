@@ -1,1 +1,0 @@
-# zoroaster-dot.github.io
